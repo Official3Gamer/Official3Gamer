@@ -1,4 +1,4 @@
 # Links
 
-# https://bnd.link/officialgamer_
+# https://linktr.ee/0fficialgamer 
 # https://officialgamerblog.blogspot.com/
